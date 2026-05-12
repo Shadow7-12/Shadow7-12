@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Gaming 
 - 🌱 I’m currently learning ...C++
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me ... Discord- jsashadow
 - 😄 Pronouns: ...he/his
 - ⚡ Fun fact: ...im trash
 
