@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...C++
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... Discord- jsashadow
-- 😄 Pronouns: ...he/his
+- 😄 Pronouns: ...he/him
 - ⚡ Fun fact: ...im trash
 
 <!---
